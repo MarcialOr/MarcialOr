@@ -30,7 +30,7 @@ Here are some ideas to get you started:
 - A passionate Self-taught Front-end developer
 - Playing CTF's at spare time
 - Currently learning Web Development by Self
-- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://read.cv/0xabdulkhalid)
+- I’m currently open for an Intern or a new job opportunity, this is [my resume](www.linkedin.com/in/marcial-ordoñez-7714b21b4)
 
 <br><br>
 
